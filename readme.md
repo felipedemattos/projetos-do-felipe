@@ -1,0 +1,1 @@
+Os guri taõ estudando o git antes da facul de CC
